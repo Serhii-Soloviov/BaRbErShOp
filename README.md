@@ -1,0 +1,1 @@
+# Soloviov Serhii - Barbershop project
